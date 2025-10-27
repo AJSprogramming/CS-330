@@ -1,0 +1,3 @@
+The design helped with organizing many different shapes from a real life photo and organizing them using code. I designed it using a plane as the desk and had a TV, pen, pencil, and cup. These tactics can help with bringing objects to life with many different design opportunities. 
+I used some of the items i use on a regular basis to best describe the scene of a desk. The coding assignments helped with building the skills necessary to complete the project and helped get a grasp onto what was needed in the project. 
+These skills can translate to how you can bring something as simple as a desk and make so many small details to it. If in the professional world I would have to complete a design, these skills would be useful on bringing light to an object.
